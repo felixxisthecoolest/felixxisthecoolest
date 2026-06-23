@@ -7,6 +7,6 @@ PLEASE INTTT I NEED THIS
 
 DDLC FANDOM STRICTLY DNI
 
-HE / HIM.    IT / ITS   
+HE / HIM.    IT / IT'S.
 
-<img src=https://www.pinterest.com/ideas/jayingee-jake/906117966989/" width="350">
+
